@@ -1,2 +1,6 @@
 # hello-world
 My first repository :)
+
+Ok, am... I don't have any to say, and all I say I think was wrote bad... so...
+I don't want to write more than this.... thanks for reading u.u
+My english is so bad...
